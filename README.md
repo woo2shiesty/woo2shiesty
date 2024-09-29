@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... Bonsai arent genetically dwarfed trees just regular trees with restricted living space.
 -->
+# About me
+## My Interests
+I have many interests but a few of my favorites are...
+*Bonsai trees
+*Video games
+*Cars
+## Website I recommend
+ *[QWOP](https://www.foddy.net/Athletics.html) - I enjoy the mechanics of this old game
+ *[One Million Pats](https://www.onemillionpats.com) - This website is about petting a doge and it counts it. I have put in many 
